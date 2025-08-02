@@ -4,7 +4,7 @@
 - 👯 I’m looking to collaborate on 学习
 - 🤔 I’m looking for help with 我不是很懂GitHub..好多英文，有没有人救救我
 - 💬 Ask me about 都可以，但是聊天功能在哪里？
-- 📫 How to reach me: 2835859791
+- 📫 How to reach me: 2835859791@qq.com
 - 😄 Pronouns: 这是什么意思
 - ⚡ Fun fact: ...
 <!--
